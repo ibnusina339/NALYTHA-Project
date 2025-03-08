@@ -1,2 +1,2 @@
 # NAT-A
-Sattelite Sculpture 
+Avicenna Sattelite Sculpture Side 
